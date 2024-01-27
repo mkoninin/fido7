@@ -6,3 +6,6 @@ https://groups.google.com/g/fido7.nsk.general/search?q=before%3A1997-03-26%20aft
 строка поиска: before:1997-03-26 after:1997-03-25
 
 
+https://wfido.ru/all - с 2009 года
+
+https://www.asvcorp.ru/darch/blt/nskbbs/index.html - список ббс 1996 года
